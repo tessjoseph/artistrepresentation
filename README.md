@@ -2,6 +2,8 @@
 
 
 Artist Representation at the Museum of Contemporary Art Chicago
+
+
 The Museum of Contemporary Art, known as the MCA, is a renowned institution in Chicago,
 celebrated for its dedication to contemporary and avant-garde art across diverse mediums. It
 ranks among the world's largest and most comprehensive contemporary art museums, exhibiting
